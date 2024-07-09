@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Arenkel
+- 👀 I’m interested in ... coding, animation, and editing
+- 🌱 I’m currently learning ... intermedait coding
+- 😄 Pronouns: ... normal
+- ⚡ Fun fact: ... i have a yt (@Meneer-Animeren)
